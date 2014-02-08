@@ -1,4 +1,10 @@
-### Vicious Cycles and Imaginary Novels: History and Praxis in Sartre and Bourdieu[^1]
+### Sartre, Bourdieu, and Ethics as the Realpolitik of History
+
+Justin Murphy   
+Lecturer in Politics, University of Southampton   
+[j.murphy@soton.ac.uk](mailto:j.murphy@soton.ac.uk)   
+[jmrphy.net](http://jmrphy.net)   
+[@jmrphy](http://twitter.com/jmrphy)
 
 The relative absence of conversation between students of Pierre Bourdieu and students of Jean-Paul Sartre is not surprising, given that almost all of Bourdieu’s explicit engagements with Sartre’s work tend to be critical. Although it is therefore understandable that serious dialogue between students of each figure has hardly begun, it is ultimately unjustifiable and unfortunate: unjustifiable because the existence of very clear and deep parallels nullifies our right to trust Bourdieu’s own view that he rejects and departs from Sartre; unfortunate because the most commonly acknowledged shortcomings or ambiguities of each correspond quite usefully to what are perhaps the most compelling elements in the work of the other.
 
